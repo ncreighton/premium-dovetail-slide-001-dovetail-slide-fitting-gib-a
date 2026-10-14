@@ -1,0 +1,2 @@
+# premium-dovetail-slide-001-dovetail-slide-fitting-gib-a
+Tired of chasing that perfect dovetail fit with endless trial-and-error? Stop guessing and start tracking—your first precise gib adjustment is just one template away.  The Dovetail Slide Fitting &amp; Gib Adjust Craft Workshop transforms the chaotic process of fitting dovetail slides and adjusting gibs into a structured, repeatable workflow. No more lo
